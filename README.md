@@ -1,4 +1,4 @@
 # Welcome
 
 
-[Subscribe to the Narrative Devlog on Substack ↗](https://theoverthoughtguy.substack.com)
+[Subscribe to my Substack ↗](https://substack.com/@0v3rthought)
